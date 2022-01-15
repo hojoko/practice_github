@@ -2,4 +2,4 @@
 
 * My favorite food is Kinakomochi!!
 
-* Add Houjicha!!
+* Add Houjicha!! and Maccha!!
